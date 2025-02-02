@@ -1,1 +1,1 @@
-Nord but more colorful.
+When OneDark married Nord.
